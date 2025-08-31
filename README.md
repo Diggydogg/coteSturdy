@@ -1,5 +1,5 @@
 # coteSturdy
 
 
-https://solved.ac/profile/diggydog/
+https://solved.ac/profile/diggydog
 
